@@ -2,7 +2,7 @@ hi, im blood sorceress.
 i like programming and now i'm learning python, c# and js
 i'm new as a programmer but i'll try to improve myself and my programming skills.
 
-i have a discord. @Blood Sorceress#8946
+i have a discord. @Blood Sorceress#2796
 
 
 
